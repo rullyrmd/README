@@ -1,8 +1,4 @@
 # Rully Ramadhan
 
-Hi Hi
-
-- 📝 
-- 🤷🏿‍♂️
-
-- Stats
+Hi I'm Rully , Welcome to my profile 💻
+  

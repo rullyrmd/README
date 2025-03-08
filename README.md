@@ -1,1 +1,8 @@
-# README
+# Rully Ramadhan
+
+Hi Hi
+
+- 📝 
+- 🤷🏿‍♂️
+
+- Stats
